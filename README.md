@@ -1,1 +1,0 @@
-# Samsung-Assignment-2
